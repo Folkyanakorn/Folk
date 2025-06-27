@@ -57,7 +57,7 @@ Hi, I'm **Folk7N40** (Yanakorn). I’m a **Trainee Programmer** from **Chiang Ma
 ### 📬 **Connect with Me:**
 
 - **Email**: [yanakorn.wangrabob@live.rmutl.ac.th](mailto:yanakorn.wangrabob@live.rmutl.ac.th)
-- **Facebook**: [Your facebook](https://www.facebook.com/junker.ayane.5/)
+- **Facebook**: [Yanakorn Wangrabob](https://www.facebook.com/junker.ayane.5/)
 - **Twitter**: [@AmryFolk](https://twitter.com/AmryFolk)
 
 ---
